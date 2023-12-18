@@ -1,0 +1,1 @@
+It is difficult but nothing is each 
